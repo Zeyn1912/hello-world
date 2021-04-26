@@ -3,7 +3,7 @@
 I am in Git because i want know the world of a development. 
 
 I am not professional in that. 
-The reason becaus i start this if because one new objective in my head it's start my own job in all.
+The reason because i start this if because one new objective in my head it's start my own job in all.
 
 #Games, #GraphicDesign, #NetworkMarketing, #Design;Development;CreateVideo-games, and others things.
 
